@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nissanka Hettiarachchi
-- 👀 I’m interested in Coding and SEO
+- 👀 I’m interested in Web Design and SEO
 - 🌱 I’m currently learning Cryptocurrency
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
